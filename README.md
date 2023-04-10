@@ -1,7 +1,7 @@
 # tarefa
 apenas mais uma atividade
 ***
-##T AREFA 2 COMPLETA DO VALDIR
+## TAREFA 2 COMPLETA DO VALDIR
 ***
 ### to com saudade do abraço dela
 ***
