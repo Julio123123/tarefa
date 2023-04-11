@@ -16,3 +16,4 @@ apenas mais uma atividade
 
 ***
 # ヽ( ͡°╭͜ʖ╮͡° )ﾉ
+## ( ͡ಠ ʖ̯ ͡ಠ)   ( ͡° ͜ʖ ͡°)
