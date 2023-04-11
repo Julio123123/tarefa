@@ -11,7 +11,7 @@ apenas mais uma atividade
 
 ***
 
-# **IREI ME DECLARAR ATÉ O FIM DO ANO**
+# **IREI ME DECLARAR ATÉ O FIM DO ANO (nem que seja o imposto de renda)**
 ![](https://media.tenor.com/WYsFmQDiMn8AAAAM/capivara.gif)
 ![](https://media.tenor.com/9h6Db9JmjAwAAAAd/maxwell-cat.gif)
 
