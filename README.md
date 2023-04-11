@@ -14,3 +14,5 @@ apenas mais uma atividade
 # **IREI ME DECLARAR ATÉ O FIM DO ANO**
 ![](https://media.tenor.com/WYsFmQDiMn8AAAAM/capivara.gif)
 
+***
+# ヽ( ͡°╭͜ʖ╮͡° )ﾉ
